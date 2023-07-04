@@ -1,1 +1,1 @@
- https://GitHub Vichnevskaya.github.io/rsschool-cv/cv
+ https://GitHubVichnevskaya.github.io/rsschool-cv/cv
